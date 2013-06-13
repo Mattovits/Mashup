@@ -3,4 +3,4 @@ Mashup
 
 Røde Mashup
 
-Just my personal shit, where i usaly fuck up :)
+Just my personal shit, where i usually fuck up :)
